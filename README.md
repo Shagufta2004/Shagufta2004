@@ -50,4 +50,6 @@ I enjoy building practical projects that combine data analysis, predictive model
 
 💼 LinkedIn: **www.linkedin.com/in/shagufta-shaikh-2861473b7**
 
+📧 Email: official.shaguftashaikh1402@gmail.com
+
 ⭐ *Thanks for visiting my profile!*
